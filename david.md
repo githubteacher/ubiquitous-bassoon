@@ -1,0 +1,1 @@
+![deal](https://raw.githubusercontent.com/hxlnt/aifunclub/master/dealwithitbot.gif)
