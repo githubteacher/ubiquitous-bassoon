@@ -1,1 +1,1 @@
-![deal](https://raw.githubusercontent.com/hxlnt/aifunclub/master/dealwithitbot.gif)
+![deal](https://media.giphy.com/media/yxv44p7I7cZhu/giphy.gif)
